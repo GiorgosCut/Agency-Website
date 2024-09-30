@@ -9,4 +9,4 @@ Please keep me updated
 -------------- Mimis --------------
 
 testing re koeplia 
-matheno tora ta git ktl
+eteliosa me ta videos tou kinezou gia to git je github 
